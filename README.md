@@ -10,4 +10,4 @@ Building software utopias to unearth the human potential of archetypal cryptopat
 
 Domains: p2p, ai, CLT construction, alchemy, space
 
-Morgan is a mission driven Oracle who aims to bring strength to community through the development of scalable programs written for expanding the lives of human potential. Morgan works with blocks and chains to bring verifiable harmony to information when building for family-driven businesses to help downstream media optimism. More recently Morgan coordinates their quilt of reason & love through the use of Tarot cards & Numerology. Puzzles are a key tool in Morgan’s tool-belt.
+Morgan is mission driven (*dabbit) who aims to bring strength to community through the development of scalable programs written for expanding the lives of human potential. Morgan works with blocks and chains to bring verifiable harmony & life aware conflict to information when building for family-driven businesses. More recently Morgan coordinates their quilt of reason & love through the use of Oracle cards & Numerology.
